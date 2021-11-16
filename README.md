@@ -1,0 +1,1 @@
+# sdc_mid_competition
